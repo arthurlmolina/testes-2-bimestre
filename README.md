@@ -9,3 +9,7 @@ RA:24031565-2
 Gustavo dos Santos Guimarães 
 RA: 24000191-2
 
+Arthur Lavagnolli Molina
+
+Gustavo dos Santos Guimarães 
+
